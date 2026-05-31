@@ -1,4 +1,4 @@
-# SBWSVGV
+# LEGAL THING
 ================================================================================
 ASSET PACK: Steamboat Willie (1928) - SVG Frames & Audio
 Created and Formatted by: Stormwindsky (2026)
